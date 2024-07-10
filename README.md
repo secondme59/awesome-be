@@ -25,4 +25,11 @@ Pull requests welcome, please read [CONTRIBUTING.md](./CONTRIBUTING.md)
 
 ## IRL
 
+- [AllHerLuv] (https://www.allherluv.com/tour/).
 - Bambi blaze
+- [Ludella Hahn] (https://ludellahahnfetish.com/index.html).
+- [Missa] (https://missax.com/tour/).
+
+## Audio
+- [Kinky Utterances] (https://www.patreon.com/user?u=586992).
+- [WaverCD] (https://www.patreon.com/wavercd)
